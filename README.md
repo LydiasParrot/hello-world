@@ -1,6 +1,8 @@
 # hello-world
 
-For years radios
+A loud clatter of gunk music flooded through the Heart of Gold
+cabin as Zaphod searched the sub-‐etha radio wavebands for news of
+himself. The machine was rather difficult to operate. For years radios
 had been operated by means of pressing buttons and turning dials;
 then as the technology became more sophisticated the controls were
 made touch-‐sensitive-‐you merely had to brush the panels with your
