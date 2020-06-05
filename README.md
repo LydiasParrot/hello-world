@@ -8,3 +8,6 @@ fingers; now all you had to do was wave your hand in the general
 direction of the components and hope. It saved a lot of muscular
 expenditure of course, but meant that you had to sit infuriatingly still
 if you wanted to keep listening to the same programme.
+
+Douglas Adams
+Hitchhiker's Guide to the Galaxy
